@@ -1,1 +1,1 @@
-Website created as Society of Physics Students Outreach Officer as resource provider to lower-classmen.
+Website created during Society of Physics Students Outreach Officer appointment as resource provider to lower-classmen.
